@@ -1,4 +1,4 @@
 # WHSTechNotes
 
-# 9/2
+# September 2, 2025
 Hello World
