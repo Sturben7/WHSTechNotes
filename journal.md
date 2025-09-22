@@ -6,3 +6,6 @@ Today, I created my first GitHub account and repository. I'm excited to start us
 
 # September 2, 2025
 Hello World
+
+# September 22, 2025
+it is a bad thing for real jobs because it does not help real stores.
