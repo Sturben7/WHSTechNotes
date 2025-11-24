@@ -9,5 +9,13 @@ Hello World
 
 # September 22, 2025
 it is a bad thing for real jobs because it does not help real stores.
+# November 3, 2025
+it would affect the lower class
+it couldn't
+because SNAP is to help those who can not aford food
+
+
+
+
 # November 17, 2025
 i feel happy that it is here
