@@ -19,3 +19,6 @@ because SNAP is to help those who can not aford food
 
 # November 17, 2025
 i feel happy that it is here
+
+# December 1, 2025
+ delivery drone operator are helpful because they can incease speed of delivery with a pay of $84,000 to $126,500 annually
