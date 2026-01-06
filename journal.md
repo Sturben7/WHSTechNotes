@@ -25,3 +25,5 @@ i feel happy that it is here
 
 # December 15, 2025
 i dont have any plans for the break
+# January 6, 2026
+over the winter i used my computer and phone
