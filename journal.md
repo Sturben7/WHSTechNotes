@@ -27,3 +27,6 @@ i feel happy that it is here
 i dont have any plans for the break
 # January 6, 2026
 over the winter i used my computer and phone
+
+# January 12, 2026
+Autcraft was created to solve the problem of bullying in minecaft by being a highly moderated and welcoming to new people.
