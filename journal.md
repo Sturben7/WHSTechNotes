@@ -30,3 +30,6 @@ over the winter i used my computer and phone
 
 # January 12, 2026
 Autcraft was created to solve the problem of bullying in minecaft by being a highly moderated and welcoming to new people.
+
+# January 20, 2026
+tech can be used to sperd info fast and far such as email and it matters because it alows news to travel fast
