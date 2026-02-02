@@ -35,3 +35,5 @@ Autcraft was created to solve the problem of bullying in minecaft by being a hig
 tech can be used to sperd info fast and far such as email and it matters because it alows news to travel fast
 # January 29, 2026
 i took the MAP i think. i think i did okay on it and i dont think test prep would really help me because i will end up forgeting everything.
+# February 2, 2026
+to be professional in shared spaces is to be thoughtful of others and pick up after yourself
