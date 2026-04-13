@@ -37,3 +37,7 @@ tech can be used to sperd info fast and far such as email and it matters because
 i took the MAP i think. i think i did okay on it and i dont think test prep would really help me because i will end up forgeting everything.
 # February 2, 2026
 to be professional in shared spaces is to be thoughtful of others and pick up after yourself
+# April 9, 2026
+a emp
+# April 13, 2026
+the challengs help us learn that we need backup systems and better communications.
