@@ -41,5 +41,5 @@ to be professional in shared spaces is to be thoughtful of others and pick up af
 a emp
 # April 13, 2026
 the challengs help us learn that we need backup systems and better communications.
-# April 13, 2026
+# April 20, 2026
 yes and no it can ruin the fun for others
